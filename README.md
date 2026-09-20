@@ -19,9 +19,7 @@
 <br>
 <br>
 <br>
-<br>
-<br>
-<img align="left" width="575" src="https://64.media.tumblr.com/82d780e8925931eaa765296b3b17ba82/0d4f0de288e2c9b2-df/s2048x3072/e3ee7778ae310cfbc00cf8fc8ed02b60580ba101.pnj" />
+　 　<img align="left" width="205" src="https://64.media.tumblr.com/82d780e8925931eaa765296b3b17ba82/0d4f0de288e2c9b2-df/s2048x3072/e3ee7778ae310cfbc00cf8fc8ed02b60580ba101.pnj" />
 <br>
 <br>
 　　　　　　make　  sure 　to 　check　 my　 <a href="https://txto.eu.org/yuder">info</a>
