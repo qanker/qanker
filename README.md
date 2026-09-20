@@ -7,9 +7,10 @@
 <br>
 <br>
 <br>
-　  <strong>Jay</strong>　 　 or　　—  　  　 <a href="https://pronouns.cc/@CEJ240">prns.cc</a>
-     
-　adult　;　 $${\color{#d96a4c}18teen}$$ 　　　fluid prns
+<br>
+
+   <strong>Jay</strong>　 　 or　　—  　  　 <a href="https://pronouns.cc/@CEJ240">prns.cc</a> <br>
+　adult　;　 $${\color{#d96a4c}18teen}$$ 　　　fluid prns <br>
 <p align="center">
 <img align="left" width="300" src="https://file.garden/aG4uPTNO_Dlar84S/line%202.png" />
 </p> <br>
@@ -18,9 +19,7 @@
 <br>
 <br>
 <br>
-<br>
-<p align="center"> <img align="center" width="170" src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExc2x3aWdhaDA1Nmp6a2RobTdpbHQ5eW54Y3lzMmdkbHRuMXY4dm1jciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/6AlTF8fGUzyxJge5mB/giphy.gif"> </p>
-  </p>
+<img align="left" width="560" src="https://64.media.tumblr.com/82d780e8925931eaa765296b3b17ba82/0d4f0de288e2c9b2-df/s2048x3072/e3ee7778ae310cfbc00cf8fc8ed02b60580ba101.pnj" />
 
 　　　　　　make　  sure 　to 　check　 my　 <a href="https://txto.eu.org/yuder">info</a>
      
